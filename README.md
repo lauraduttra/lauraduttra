@@ -1,5 +1,5 @@
-- 👋 **#oii, sou a Laura🎀 <h1>**
+- 👋 **Oii, sou a Laura🎀 <h1>**
 - ## boas-vindas :) <h2>
-- 💌 cristã |
+- 💌 cristã > romanos 8:28
 - 🎧 senai | 2/4                   
 - 🎯 medicina
